@@ -1,0 +1,3 @@
+The International Centre for Mathematical Sciences (ICMS), Isaac Newton Institute (INI), Newton Gateway to Mathematics and Innovate UK KTN have worked with various representatives from the mathematical sciences community to develop a Virtual Forum for Knowledge Exchange in the Mathematical Sciences (V-KEMS). The main aim is to identify a range of virtual approaches that will help address challenges from business and industry, the third sector, and other groups outside academia. These challenges may be long-standing or may have arisen directly as a consequence of the present disruption to UK society.
+
+https://www.vkemsuk.org/
